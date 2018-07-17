@@ -1,2 +1,4 @@
 # hello-world
-repo1
+
+Samodaizs, a butoh dance and chilli chocolate lover.
+
